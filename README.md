@@ -16,4 +16,6 @@
 
 * [flower 3d model](https://www.yobi3d.com/q/3D-Models/flower)
 
+* [mannequin head 3d model](https://www.yobi3d.com/q/mannequin-head)
+
 
