@@ -18,4 +18,9 @@
 
 * [mannequin head 3d model](https://www.yobi3d.com/q/mannequin-head)
 
+* [mannequin 3d model](https://www.yobi3d.com/q/mannequin-3d-models-free-download)
+
+* [mannequin head 3d model](https://www.yobi3d.com/q/3d-models-head-mannequin)
+
+* [batman logo](https://www.yobi3d.com/q/batman-logo)
 
